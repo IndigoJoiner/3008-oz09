@@ -1,4 +1,4 @@
-#  
+#  hidden 3008 Script offers the most advanced 3008 Script, with invisibility and auto-sell. Perfect for dominating any match.
 
 
 
